@@ -1,1 +1,0 @@
-# bruinshare-privacy-policy
